@@ -24,6 +24,6 @@ A passionate Developer & Cyber Security fanatic with experience in back-end deve
 
 **Connect with Me:**
 
-* [LinkedIn][(link to your LinkedIn profile)](https://www.linkedin.com/in/ajirioghene-iyelobu
+* [LinkedIn](https://www.linkedin.com/in/ajirioghene-iyelobu
 * [Twitter] https://twitter.com/rokarioss1
 * [Email address] oshomahiyelobu1@gmail.com
